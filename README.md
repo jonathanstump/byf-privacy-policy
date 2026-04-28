@@ -34,4 +34,4 @@ We may update this policy from time to time. We will notify you of significant c
 
 ## Contact Us
 
-If you have questions about this privacy policy, contact us at: [betyourfriendsapp@gmail.com]
+If you have questions about this privacy policy, contact us at: betyourfriendsapp@gmail.com
